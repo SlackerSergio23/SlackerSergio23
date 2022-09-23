@@ -1,4 +1,4 @@
-### oie (owo)
+### (owo)
 
 <div align="center">
   <a href="https://github.com/DRCO23">
